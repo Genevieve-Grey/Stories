@@ -63,9 +63,9 @@ I had blushed heavily, fumbling between putting everything back and dumping it a
 
 Richard had scoffed, putting his long fingers to his temples. He wore heavy silver rings. I remember that especially. He had long, slim fingers. They looked elegant. I liked them. I told him once that I liked his fingers, that I thought they were cool, and he raised a brow at me (I knew this was an odd compliment, but I said it anyways, much to my later embarrassment) but smirked nonetheless.
 
-    “I was blessed with my mother’s genes.” He had said. A confidence that only comes from being complimented had filled his tone. 
-
-    “I can see,” I replied, looking down at my fingers. They were proportionate to my hand, but not bad-looking. They were average, I supposed.
+“I was blessed with my mother’s genes.” He had said. A confidence that only comes from being complimented had filled his tone.
+ 
+“I can see,” I replied, looking down at my fingers. They were proportionate to my hand, but not bad-looking. They were average, I supposed.
 
 “I thought you would assume to put them in that bowl I left there.” Richard had muttered, gesturing to the glass bowl on the counter, tucked in the corner between the wall and the fridge. This had only made me blush harder, embarrassed by my stupidity. Of course, he wanted me to use that bowl. I had looked right over it.
 
